@@ -1,4 +1,4 @@
-Privacy Policy for Myefe Kids Applications
+# Privacy Policy for Myefe Kids Applications
 
 Dear Parent,
 
