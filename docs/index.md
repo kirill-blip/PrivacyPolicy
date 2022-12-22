@@ -1,5 +1,3 @@
-# Privacy Policy for Myefe Kids Applications
-
 Dear Parent,
 
 We are parents ourselves, so we take kids privacy very seriously.
