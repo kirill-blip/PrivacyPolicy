@@ -1,2 +1,1 @@
-# PrivacyPolicy
- Privacy policy for my games
+#Privacy policy
