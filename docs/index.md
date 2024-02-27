@@ -7,4 +7,4 @@ If you submit a support request, I may receive your email address and other info
 I may update our Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Privacy Policy on this page. These changes are effective immediately after they are posted on this page. 
 
 If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me.
-K-Blip@outlook.com
+golubenkokirill@gmail.com
